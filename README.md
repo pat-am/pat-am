@@ -6,4 +6,3 @@
 - 💬 Ask me about how we use data to learn more about language and learning. 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love bouldering and I collect Tamagotchi. 
--->
